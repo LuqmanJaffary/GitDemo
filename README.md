@@ -1,3 +1,3 @@
 # this is learning time
 
-# keep learning
+# keep learning(learn and earn)
